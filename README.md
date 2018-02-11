@@ -1,2 +1,3 @@
 # hello-world
 FCP github tst
+Hi - I'm from Denmark, love to create low-level progs, love to collect a lot of old stuff and love my cats....have just experienced the worst year ever (2017), starting 27 hours in to the year 2017 with my wonderful girlfriend dying "in my arms" so to speak and from that day, it have just rained with disasters and catastrophes until the latest incident, 8 Nov 2017, the day my house and the half of my belongings burned - but my cats survived so life goes on....
